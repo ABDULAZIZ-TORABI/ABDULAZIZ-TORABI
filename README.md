@@ -2,3 +2,4 @@
 - 👀 I’m interested in #Ai #machine-learning #deep-learning
 - 🌱 I’m currently learning python language
 
+- #ksu #ksa 
